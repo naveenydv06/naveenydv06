@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **DevOps & Automation Tools..**
 
-- 📫 How to reach me **naveen.jonas2247@gmail.com**
+- 📫 How to reach me **mail.naveen1998@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
